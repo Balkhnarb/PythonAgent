@@ -1,1 +1,1 @@
-Toutes eplications dans document
+Toutes explications dans document
